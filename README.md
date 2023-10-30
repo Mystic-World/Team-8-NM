@@ -1,2 +1,3 @@
 # Team-8-NM
-Group assignment and Individual Projects of Roshini-2019177, Narendran-2019161, Salmaa-2019180, Roshna Parveen-2019178
+link -https://drive.google.com/drive/folders/1SnwI--EG4U-ZY_M3SkynDeHpjexqGjeZ
+Mailchimp - https://mailchi.mp/87aba435a864/bloody-sweet-icecreams
